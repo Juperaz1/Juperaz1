@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Juperaz1
-- 🚗 my higher education was financed by the boy who knocked me down bruh.
 - 👀 I’m interested in the cybersecurity
 - 🌱 I'm currently learning the basics of cybersecurity and I love it.
 - 😄 Pronouns: she 
