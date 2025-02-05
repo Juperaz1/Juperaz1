@@ -1,6 +1,4 @@
-# [Votre Nom] (ou le pseudo que vous préférez)
-
-## Accroche (parce qu'il faut bien commencer)
+# JuPeRaz
 
 Humain en cours de développement (version 20). 
 Passionné par l'espionnage hihihi et d'autres trucs cools. 
