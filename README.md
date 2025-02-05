@@ -8,7 +8,7 @@ Dans les deux cas, bienvenue !
 
 ## À propos de moi (enfin, l'essentiel)
 
-Je suis une personne plutot sympa enfin ça depend de quelque trucs qui aime mon chat. 
+Je suis une personne plutot sympa enfin ça depend de quelque trucs. 
 Je suis toujours à la recherche de nouvelles découvertes et de gens 
 intéressants à rencontrer (enfin, pas trop). 
 Si vous avez des projets cool, des idées farfelues ou des blagues 
